@@ -1,1 +1,0 @@
-styuio;/.,mngs
